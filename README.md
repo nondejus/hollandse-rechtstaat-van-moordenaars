@@ -1,2 +1,0 @@
-# hollandse-rechtstaat-van-moordenaars
-2002 - Today
